@@ -1,1 +1,1 @@
-demo link in pdf : https://drive.google.com/drive/folders/1CrAov1B2437HVanKV9U7KWKKpE78ymCd?usp=drive_link
+demo link in video: https://drive.google.com/file/d/1wmUUYK_xWOMKbsAPwkkgDaYX4dNRmVB9/view?usp=drive_link
